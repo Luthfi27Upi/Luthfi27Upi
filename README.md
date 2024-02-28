@@ -1,1 +1,1 @@
-![](https://giphy.com/gifs/jokowi-gibran-awshitpostid-SqhIAuD8a328ba3DjQ)
+![](https://github.com/Luthfi27Upi/Bahan/blob/main/meme.gif)
